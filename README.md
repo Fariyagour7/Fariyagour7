@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @Fariyagour7
 - 👀 I’m interested in making YouTube videos
-- 🌱 I’m currently learning affiliate marketing
-- 💞️ I’m looking to collaborate on ...
-- 📫 reach me on Instagram
+- 🌱 I’m currently studying
 
 
 <!---
